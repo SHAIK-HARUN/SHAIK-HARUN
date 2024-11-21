@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SHAIK-HARUN
 - 👀 I’m interested in coding , developing new.
-- 🌱 I’m currently student
+- 🌱 I’m graduate 
 - 💞️ I’m looking to collaborate on coder 
 - 📫 How to reach me 
 
